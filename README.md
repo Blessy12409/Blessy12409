@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blessy12409
-- 👀 I’m interested in ... a whole lot that I'm still finding out... There's climate change and social issues, being such a tinker [at least in my head] and quite a designer, and finally realising that math and coding are tools to me more than feilds to explore, and...
+- 👀 I’m interested in ... a whole lot that I'm still finding out... There's climate change and social issues, being such a tinker and quite a designer and author (all that... at least in my head), and finally realising that math and coding are tools to me more than feilds to explore, and...
 - 🌱 I’m currently learning ... to live
 - 💞️ I’m looking to collaborate on ... self development
 - 📫 How to reach me: Here?
